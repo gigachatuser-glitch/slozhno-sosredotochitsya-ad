@@ -1,1 +1,1 @@
-gigachatuser-glitch/slozhno-sosredotochitsya-ad
+https://github.com/gigachatuser-glitch/slozhno-sosredotochitsya-ad
